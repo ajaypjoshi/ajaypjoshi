@@ -1,5 +1,5 @@
 # 💫 About Me:
-👨‍💻 See my dashboard projects on : https://www.novypro.com/profile_projects/ajayjoshi<br>📫 How to reach me : ajayjoshi825@gmail.com<br>📝 I regularly write articles on : https://medium.com/@ajaypjoshi999
+👨‍💻 See my dashboards projects on : https://www.novypro.com/profile_projects/ajayjoshi<br>📫 How to reach me : ajayjoshi825@gmail.com<br>📝 I regularly write articles on : https://medium.com/@ajaypjoshi999
 
 
 ## 🌐 Socials:
