@@ -2,7 +2,7 @@
 👨‍💻 See my dashboards projects on : https://www.novypro.com/profile_projects/ajayjoshi<br>📫 How to reach me : ajayjoshi825@gmail.com<br>📝 I regularly write articles on : https://medium.com/@ajaypjoshi999
 
 
-## 🌐 Socials:
+## 🌐 Social Profile:
 [![LinkedIn](https://img.shields.io/badge/LinkedIn-%230077B5.svg?logo=linkedin&logoColor=white)](https://www.linkedin.com/in/ajay-joshi-781a24150/) 
 
 # 💻 Tech Stack:
